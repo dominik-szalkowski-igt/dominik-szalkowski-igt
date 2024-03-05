@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dominik-szalkowski-igt
+- 👀 I’m interested in exploring postapocalyptic open worlds using PS5 ;-)
